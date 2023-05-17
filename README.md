@@ -3,4 +3,6 @@
 - 📖 I am currently part of the Minecraft Italy staff team as a Helper and the EdenMine community, however, I aim to fill a significant role in the Head Staff of these two projects.
 - 📫 My telegram profile: @simplystic 
      My Discord Profile: simplystic#0602
-"How big would you dream if you knew you couldn't fail?" 🔥
+
+
+             "How big would you dream if you knew you couldn't fail?" 🔥
